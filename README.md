@@ -1,16 +1,44 @@
-## Hi there 👋
+# New Domain:
+
+https://yarrlists.net/
 
 <!--
-**Yarrlist-new/Yarrlist-new** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+Welcome to the YarrList Watch Movies and Tv series online, Free movie websites, Watch sports events live online, Free streaming sites like crichd, sportsurge, buffstreams and more.
 -->
+
+Welcome to the YarrList
+# [🍿Movies and TV Shows](https://yarrlists.net/movies-and-tv-shows)
+Watch Movies and Tv series online | Free movie websites
+
+# [🐉Anime](https://yarrlists.net/anime-list)
+Watch free online or download anime episodes | best streaming sites
+
+# [⚾Live Sports](https://yarrlists.net/sports-live-streaming)
+Watch sports events live online | Free streaming sites
+
+# [⬇️Torrents](https://yarrlists.net/torrent-sites-list)
+Get movies, games, and more through peer-to-peer sharing.
+
+# [📺Live TV](https://yarrlists.net/live-tv-list)
+Watch live TV channels from around
+
+# [📙Manga](https://yarrlists.net/manga-list)
+Watch latest manga releases online now
+
+# [🦸Comics](https://yarrlists.net/comics-list)
+Read digital comics from leading publishers.
+
+# [👁️‍🗨️Adblockers](https://yarrlists.net/adblockers-list)
+Block ads and pop-ups for a smoother browsing experience
+
+# [🎮Games](https://yarrlists.net/games-download-sites)
+Play or download games for PC and consoles.
+
+# [🎶Music](https://yarrlists.net/music-download-sites-list)
+Listen to or download songs and albums at no cost.
+
+# [📚eBooks](https://yarrlists.net/ebooks-list)
+Browse or download books in digital formats.
+
+# [🔏VPN](https://yarrlists.net/list-with-best-vpn-service-2025)
+Keep your online activity private and unlock restricted content.
